@@ -1,0 +1,1 @@
+# negociacoes.github.io
